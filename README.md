@@ -1,6 +1,6 @@
 ### Suh Dude 🤙
 
-- 🔭 Trying to motivate myself
+- 🔭 Always want to learn
 - 👨‍💻 Taking Computer Science
 - 🌱 Growth Mindset
 
