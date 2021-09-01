@@ -1,7 +1,7 @@
-### Suh Dude 🤙
+### Hello 🤙
 
 - 🔭 Always want to learn
-- 👨‍💻 Taking Computer Science
+- 👨‍💻 CS Student
 - 🌱 Growth Mindset
 
 
