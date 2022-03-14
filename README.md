@@ -2,7 +2,7 @@
 
 - 🔭 Always want to learn
 - 👨‍💻 CS Student
-- 🌱 Growth Mindset
+- 🌱 Always growing
 
 
 You can reach me at https://twitter.com/foundyourflow or on discord FoundYourFlow#4760
