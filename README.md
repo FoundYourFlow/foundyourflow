@@ -1,7 +1,7 @@
 ### Hello 🤙
 
 - 🔭 Always want to learn
-- 👨‍💻 CS Student
+- 👨‍💻 CS Student(failing hard tbh)
 - 🌱 Always growing
 
 
